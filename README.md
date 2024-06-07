@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Arianit1607
 - 👀 I’m interested in women
 - 🌱 I’m currently learning kurdish
-- 💞️ I’m looking to collaborate on code
+- 💞️ I’m looking to collaborate with Dr. Pepper
 - 📫 Don't reach me
 - 😄 Pronouns: Kos/ me hudher
 - ⚡ Fun fact: John Wayne my idol
